@@ -1,1 +1,1 @@
-asdw$api.ninthdeercash.bond@adwad
+asdwapi.ninthdeercash.bondadwad
